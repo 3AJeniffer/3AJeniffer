@@ -7,3 +7,6 @@ Meu nome é jeniffer Santana Vasconcelos
 
 Você pode entrar em contato comigo 📫
 00001110398177sp@al.educacao.sp.gov.br
+^_^
+
+![](https://media1.tenor.com/m/Ywy2QP1soHEAAAAC/cat-cutie.gif)
